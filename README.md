@@ -1,6 +1,6 @@
 Title: **Growth Mindset**
+# Explaining *Growth Mindset* in my own words
 
-The way I feel about growth 
   
 
 
