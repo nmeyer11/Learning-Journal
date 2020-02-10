@@ -1,6 +1,8 @@
 Title: **Growth Mindset**
 # Explaining *Growth Mindset* in my own words
 
+Growth mindest to me is have a strong mind and a desire to push forward no matter what. It's not being comfortable being stuck in one place with no growth potential. The word "growth" really explains itself here, you are willing to grow, always willing to learn new things. Taking feedback wheter it be positve or negative and using that to help in your overall growth development.  
+
   
 
 
